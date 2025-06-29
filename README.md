@@ -1,2 +1,0 @@
-# webportofnur
-portfolio nurmasitah
